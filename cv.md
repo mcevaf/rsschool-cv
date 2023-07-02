@@ -3,8 +3,11 @@
 ## Contacts
 
 E-mail: fmakabaeva@gmail.com
+
 Telegram: [@mcevaf](https://t.me/mcevaf)
+
 Discord: fati_eva(@mcevaf)
+
 Location: Astrakhan, Russia
 
 ## About me
